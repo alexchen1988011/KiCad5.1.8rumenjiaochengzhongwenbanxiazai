@@ -1,0 +1,1 @@
+# KiCad5.1.8rumenjiaochengzhongwenbanxiazai
